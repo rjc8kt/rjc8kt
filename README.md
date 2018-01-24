@@ -1,2 +1,2 @@
 # rjc8kt
-Winter Break
+I went to St. Lucia with my family.
