@@ -1,2 +1,2 @@
 # rjc8kt
-I went to St. Lucia with my family.
+I went to St. Lucia for vacation with my family.
